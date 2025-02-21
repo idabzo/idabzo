@@ -23,3 +23,5 @@ I’m open to freelance projects, consulting, and collaboration opportunities. L
 🎯 Reach out via [LinkedIn](https://www.linkedin.com/in/idabzo/)
 
 📩 Or email me → beatleida[at]gmail.com
+
+My up to date resume [can be found here](https://drive.google.com/file/d/1nOGqAJeSE119vqqpBbxg9M-U5Ifkr7IK/view?usp=sharing)
